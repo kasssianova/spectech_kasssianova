@@ -1,1 +1,1 @@
-spectech_kasssianova
+spectech
